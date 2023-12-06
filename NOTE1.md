@@ -1,1 +1,2 @@
-![Alt Text]([https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif](https://cdn.donmai.us/original/47/41/__original_drawn_by_buchidot__4741a35a2f08b1373fc8756004f9c28d.gif)https://cdn.donmai.us/original/47/41/__original_drawn_by_buchidot__4741a35a2f08b1373fc8756004f9c28d.gif)
+Hi i'm nologyE i'm here just for learning just that thank you for reading
+![](https://github.com/nologye/nologyE/assets/153089914/d47f1178-e2a1-4b85-8386-4b46f101775a)
